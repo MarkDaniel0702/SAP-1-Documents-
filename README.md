@@ -42,4 +42,8 @@ The following individuals were responsible for the successful completion of this
 ### Most Expensive IC
 ![Most Expensive IC](https://github.com/user-attachments/assets/a8e9c6ce-72d9-4a72-83ad-308e1818a633)
 
+### Glimpse of SAP-1
+![Glimpse of SAP-1_Part1](https://github.com/MarkDaniel0702/SAP-1-Documents-/blob/a01b8ca65e7b6e3cf48944f2e72250fbdf8cd1ee/GIFs/499389499_1608560106492608_54332921609045120_n.gif)
+![Glimpse of SAP-1_Part2](https://github.com/MarkDaniel0702/SAP-1-Documents-/blob/85f2a071689a95958022edeb38d60fb0a392b4df/GIFs/489841951_29067822916194793_8413797328602878651_n.gif)
+
 ---
