@@ -17,3 +17,14 @@ MABUTAS, CARLA R.
 SANTIAGO, CHRISTIAN ANDREI V.
 CAMUS, ANGEL LYN R.
 MIRANDA, MARIEBETHEL ROUSSAMIERE E.
+
+Photos:
+![494821989_1010354651276149_2672309051501107871_n](https://github.com/user-attachments/assets/42d62785-26fe-4063-aa13-f40b6bb5395d)
+![494688410_1397983424872277_3975128380096854012_n](https://github.com/user-attachments/assets/8dfc298e-db8e-498a-ace2-3860d2506236)
+![494690474_1471732007515247_1495810478654087214_n](https://github.com/user-attachments/assets/2dd4ea46-be03-4095-a1c4-28cd4b5adddd)
+![494820802_713917737972855_7103107300265522892_n](https://github.com/user-attachments/assets/754923cf-09ae-461c-916b-23d83554e93a)
+![494821989_1010354651276149_2672309051501107871_n](https://github.com/user-attachments/assets/2100faf3-5509-42a3-a4bb-4f525cb57bd4)
+
+Videos
+https://github.com/user-attachments/assets/7737088d-8e6b-4191-bb8c-2cbce74bdef0
+
