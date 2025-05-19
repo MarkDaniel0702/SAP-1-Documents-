@@ -25,21 +25,22 @@ The following individuals were responsible for the successful completion of this
 * CAMUS, ANGEL LYN R.
 * MIRANDA, MARIEBETHEL ROUSSAMIERE E.
 
-Photos:
+## Project Photos
 
-The Whole Group:
-![494690474_1471732007515247_1495810478654087214_n](https://github.com/user-attachments/assets/2dd4ea46-be03-4095-a1c4-28cd4b5adddd)
+### The Whole Group
+![The Whole Group](https://github.com/user-attachments/assets/2dd4ea46-be03-4095-a1c4-28cd4b5adddd)
 
-Debugger Team:
-![494820802_713917737972855_7103107300265522892_n](https://github.com/user-attachments/assets/754923cf-09ae-461c-916b-23d83554e93a)
+### Debugger Team
+![Debugger Team](https://github.com/user-attachments/assets/754923cf-09ae-461c-916b-23d83554e93a)
 
-After Defense:
-![494821989_1010354651276149_2672309051501107871_n](https://github.com/user-attachments/assets/42d62785-26fe-4063-aa13-f40b6bb5395d)
-![494821989_1010354651276149_2672309051501107871_n](https://github.com/user-attachments/assets/2100faf3-5509-42a3-a4bb-4f525cb57bd4)
+### After Defense
+![After Defense 1](https://github.com/user-attachments/assets/42d62785-26fe-4063-aa13-f40b6bb5395d)
+![After Defense 2](https://github.com/user-attachments/assets/2100faf3-5509-42a3-a4bb-4f525cb57bd4)
 
-Shawn and Christian
-![494688410_1397983424872277_3975128380096854012_n](https://github.com/user-attachments/assets/8dfc298e-db8e-498a-ace2-3860d2506236)
+### Shawn and Christian
+![Shawn and Christian](https://github.com/user-attachments/assets/8dfc298e-db8e-498a-ace2-3860d2506236)
 
-Most Expensive IC
-![494569980_2209777449457784_3890416333546918359_n](https://github.com/user-attachments/assets/a8e9c6ce-72d9-4a72-83ad-308e1818a633)
+### Most Expensive IC
+![Most Expensive IC](https://github.com/user-attachments/assets/a8e9c6ce-72d9-4a72-83ad-308e1818a633)
 
+---
