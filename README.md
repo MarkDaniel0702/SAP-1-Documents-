@@ -36,9 +36,6 @@ The following individuals were responsible for the successful completion of this
 ### After Defense
 ![After Defense 1](https://github.com/user-attachments/assets/42d62785-26fe-4063-aa13-f40b6bb5395d)
 
-### Shawn and Christian
-![Shawn and Christian](https://github.com/user-attachments/assets/8dfc298e-db8e-498a-ace2-3860d2506236)
-
 ### Most Expensive IC
 ![Most Expensive IC](https://github.com/user-attachments/assets/a8e9c6ce-72d9-4a72-83ad-308e1818a633)
 
@@ -49,9 +46,19 @@ The following individuals were responsible for the successful completion of this
 ### SAP-1 Assemebly Day
 ![SAP-1 Assemebly Day Part1](https://github.com/MarkDaniel0702/SAP-1-Documents-/blob/080e5c51c16fa00d751b0b995e5d5df0e923a020/GIFs/490103032_29095774276735747_1546016611432636683_n.gif)
 ![SAP-1 Assemebly Day Part2](https://github.com/MarkDaniel0702/SAP-1-Documents-/blob/090d3a9059aa71f4ae84a56f0397cb151709958c/GIFs/495465056_9733939590024417_3140149101498526470_n%20(1).gif)
+![SAP-1 Assemebly Day Part3](https://github.com/user-attachments/assets/a70810b8-d466-4b91-ac15-4aea17a07e7a)
 
-### SAP-1 Bloopers
+### SAP-1 Bloopers Vids
 ![SAP-1 Assmebly and Bloopers Part1](https://github.com/MarkDaniel0702/SAP-1-Documents-/blob/090d3a9059aa71f4ae84a56f0397cb151709958c/GIFs/499054842_9730255087027775_8386961479325693887_n.gif)
 ![SAP-1 Assmebly and Bloopers Part2](https://github.com/MarkDaniel0702/SAP-1-Documents-/blob/090d3a9059aa71f4ae84a56f0397cb151709958c/GIFs/3eac6b97-5df3-4f30-93ff-5908f9ce233b.gif)
+
+### Shawn and Christian
+![Shawn and Christian](https://github.com/user-attachments/assets/8dfc298e-db8e-498a-ace2-3860d2506236)
+
+### SAP-1 other pics
+![SAP-1 other pics Part1](https://github.com/user-attachments/assets/cc17aa45-bf42-44d7-9659-ff682fdd2185)
+![SAP-1 other pics Part2](https://github.com/user-attachments/assets/678a7b76-d417-478e-a512-97d805c45cc2)
+![SAP-1 other pics Part3](https://github.com/user-attachments/assets/490be0fd-a5e8-4c57-a0da-0ed7895cd206)
+
 
 ---
