@@ -26,9 +26,13 @@ The Whole Group:
 Debugger Team:
 ![494820802_713917737972855_7103107300265522892_n](https://github.com/user-attachments/assets/754923cf-09ae-461c-916b-23d83554e93a)
 
-Shawn and Christian
-![494821989_1010354651276149_2672309051501107871_n](https://github.com/user-attachments/assets/42d62785-26fe-4063-aa13-f40b6bb5395d)
-
 After Defense:
-![494688410_1397983424872277_3975128380096854012_n](https://github.com/user-attachments/assets/8dfc298e-db8e-498a-ace2-3860d2506236)
+![494821989_1010354651276149_2672309051501107871_n](https://github.com/user-attachments/assets/42d62785-26fe-4063-aa13-f40b6bb5395d)
 ![494821989_1010354651276149_2672309051501107871_n](https://github.com/user-attachments/assets/2100faf3-5509-42a3-a4bb-4f525cb57bd4)
+
+Shawn and Christian
+![494688410_1397983424872277_3975128380096854012_n](https://github.com/user-attachments/assets/8dfc298e-db8e-498a-ace2-3860d2506236)
+
+Most Expensive IC
+![494569980_2209777449457784_3890416333546918359_n](https://github.com/user-attachments/assets/a8e9c6ce-72d9-4a72-83ad-308e1818a633)
+
