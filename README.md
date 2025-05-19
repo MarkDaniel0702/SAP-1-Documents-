@@ -1,0 +1,19 @@
+Included herein is the documentation for the SAP-1 Project, along with the list of group members responsible for its completion. This project fulfills a requirement for the subject CSC 0222 - ARCHITECTURE AND ORGANIZATION, under the advisement of Professor Elsa S. Pascual.
+
+Group Members:
+ABUNDO, JONALENE RYZA B.
+DE MESA, RITA ANGELI M.
+SEGOVIA, ALIYAH LOISE C.
+VERDIDA, MAVERICK ISAIAH A.
+APELLEDO, MARK DANIEL A.
+MUSNI, LORELIE JOY A.
+GERNALE, XIENEN LEI M.
+DALANGIN, HERSHEY ANNE P.
+NAVARRO, SOFIA ALEXI P.
+GOYENA, SHAWN KIEFFER E.
+CORDOVA, VENELYN MAE C.
+VAFLOR, MARIEL KIM R.
+MABUTAS, CARLA R.
+SANTIAGO, CHRISTIAN ANDREI V.
+CAMUS, ANGEL LYN R.
+MIRANDA, MARIEBETHEL ROUSSAMIERE E.
