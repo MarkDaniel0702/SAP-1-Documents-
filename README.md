@@ -35,7 +35,6 @@ The following individuals were responsible for the successful completion of this
 
 ### After Defense
 ![After Defense 1](https://github.com/user-attachments/assets/42d62785-26fe-4063-aa13-f40b6bb5395d)
-![After Defense 2](https://github.com/user-attachments/assets/2100faf3-5509-42a3-a4bb-4f525cb57bd4)
 
 ### Shawn and Christian
 ![Shawn and Christian](https://github.com/user-attachments/assets/8dfc298e-db8e-498a-ace2-3860d2506236)
